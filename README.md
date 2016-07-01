@@ -6,7 +6,7 @@ So for the first time, just note sth to do on the earth. :sunglasses:
 
 - Finish half-marathon
 - Write sth on my blog
-- [What's wrong]
+- [ ] What's wrong
 
 
 OK. Just for fun aha.
